@@ -1,5 +1,5 @@
 ### KONO DIO DAAAAAAAAA
-hō…mukatte kuru noka. nige zuni kono dio ni chikazuite kuru noka.
+HO…MUKATTE KURU NOKA. NIGE ZUNI KONO DIO NI CHIKAZUITE KURU NOKA.
 
 <!--
 **AbrakhamKyhendrikVuri/AbrakhamKyhendrikVuri** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
