@@ -1,6 +1,9 @@
 # HO…MUKATTE KURU NOKA. NIGE ZUNI KONO DIO NI CHIKAZUITE KURU NOKA.
 WWWWWWRRRRRRRYYYYYYYYYYYYYYY
-
+ 
+ ![ZA WARRRRRRUUUUUUDOOOOOO](/images.jpg)
+ 
+ 
 <!--
 **AbrakhamKyhendrikVuri/AbrakhamKyhendrikVuri** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
